@@ -2,6 +2,8 @@
 
 **Get ready for the most *insane* ride of your life with *Curve Rush* – a blazing fast-paced runner where reflexes, speed, and focus are your only allies.**
 
+## <a href="https://1kb.link/I2dKYo">👉 Click To Play Curve Rush Unblocked NOW 👈</a>
+
 ### 🌀 What is Curve Rush?
 
 **Curve Rush** is an *endless runner* game that pushes your skills to the limit. Dodge, drift, and dash through a winding neon path at **lightning speed**! Every twist and turn challenges your reflexes in this *hyper casual* but *mega thrilling* experience.
